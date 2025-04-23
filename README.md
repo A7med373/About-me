@@ -36,7 +36,7 @@ I'm always open to collaboration, sharing knowledge, and working on exciting pro
 
 Feel free to reach out!
 
-- [LinkedIn (It's actually unavailable for now...I'll fix it soon I promise :)](https://linkedin.com/in/yourprofile)
+- LinkedIn (It's actually unavailable for now...I'll fix it soon I promise :)
 - [Email](mailto\:a7medsaif2005@gmail.com)
 - [Whatsapp](+79274172989)
 - [Telegram](https://telegram.me/AlasriAhmedSaif)
